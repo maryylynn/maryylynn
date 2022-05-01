@@ -1,1 +1,1 @@
-### Hi, I'm Luz Ortega 👋👩‍💻
+### Hi, I'm Luz Ortega 👋
