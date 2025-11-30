@@ -11,7 +11,7 @@ Bienvenid@ a mi espacio donde la música, el estilo de vida y los productos se e
 🎧 Escucha mis canciones y covers:  
 [YouTube](https://youtube.com/@luzmarylin?si=qeh_2laNztA7NqGr) | [SoundCloud](https://on.soundcloud.com/Dn1ga63gti8IynPW9e )
 
-- "Te amo" – [Escuchar]([https://youtu.be/woNcsQRPqTg?si=b8a0z86gP1y4e_mY]) 
+- "Te amo" – [Escuchar](https://youtu.be/woNcsQRPqTg?si=b8a0z86gP1y4e_mY) 
 - "Ya no" – [Escuchar](https://youtu.be/-cjxxBf5fqc?si=zVSCKM839C1E3Gy-)
 
 ---
